@@ -1,1 +1,3 @@
-KONNN KUUUU
+HANAKI-DDOS V2
+Mọi Bản Quyền Thuộc Về Hà Minh Triết
+Do Not Attack Website Gov,Edu,...
